@@ -1,2 +1,2 @@
-Link to website: https://agkasturi-creative-project.tiiny.site/
+Link to website: http://34.68.166.112/home.html
 
